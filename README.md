@@ -1,1 +1,1 @@
-["__tncisa"]
+["rotasızkaptannn"]
